@@ -3,4 +3,6 @@
 
 💧 Currently a Management Analyst on the Water Resiliency team at the [Santa Margarita Water District](https://smwd.com/), a public water utility in south Orange County, CA. 
 
-🏀 WNBA fan (go Sparks!) 💜💛
+🏀 Dedicated WNBA fan (go Sparks!) 💜💛
+
+
